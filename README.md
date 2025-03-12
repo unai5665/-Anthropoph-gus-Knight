@@ -1,1 +1,1 @@
-[Story Board](https://docs.google.com/document/d/1fygDFlDwfQX4b-jKBGirJ2oDup1NprAoUrlz6Zra_jY/edit?tab=t.0)
+[Story Board](https://github.com/unai5665/-Anthropoph-gus-Knight/blob/master/Dise%C3%B1o%20Projecto(Anthropoph%C4%83gus%20Knight).md)
